@@ -1,7 +1,7 @@
 # Curriculum Vitae / CV / Resumé
 Hello, 
 
-I'm a professional with 18+ years of experience in Bulgaria and Netherlands. I specialise in painting, but have a broad experience.
+I'm Lyubomir "Guti" Tabov, a professional with 18+ years of experience in Bulgaria and Netherlands. I specialise in painting, but have a broad experience.
 
 Delivering quality work and maintaining a positive relationship with my clients and teams is my priority. 
 
